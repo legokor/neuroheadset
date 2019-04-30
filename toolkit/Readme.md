@@ -1,0 +1,1 @@
+Meg nincs itt semmi :(
